@@ -1,7 +1,6 @@
 # 有没有类似海角社区的网站
 
-# <a href="https://https://github.com/kiuhd/dfrw/issues/1">>>>>>>>>点/此/进/入/观/看/<<<<<<<<</a>
-
+<hr/> <a href="https://github.com/kiuhd/dfrw/issues/1">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 有没有类似海角社区的网站
 居然也让厉家有攻有守，而且占了不少便宜。
 
